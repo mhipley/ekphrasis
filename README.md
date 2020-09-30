@@ -25,3 +25,7 @@ You can read more about the poem, and check out several other English-language t
 
 [Perseus with the Head of Medusa](https://www.metmuseum.org/art/collection/search/204758)
 
+[Marble statue of a lion](https://www.metmuseum.org/art/collection/search/248140)
+
+[Bronze lamp](https://www.metmuseum.org/art/collection/search/248211)
+
